@@ -1,0 +1,1 @@
+# uloha-struck-ziaci-aj-s-testingom
